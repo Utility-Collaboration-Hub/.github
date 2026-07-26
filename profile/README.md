@@ -1,1 +1,1 @@
-## Welcome to the Uitility Collaboration Hub
+## Welcome to the Utility Collaboration Hub
